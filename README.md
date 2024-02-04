@@ -49,3 +49,23 @@ Contributions are welcome! If you have suggestions or encounter issues, please o
 **License**
 
 This project is licensed under the MIT License.
+![image](https://github.com/arnavchaudhur12/StockMarketPrediction/assets/95077985/295553a5-5587-49ea-a432-b508f02e41fc)
+
+![image](https://github.com/arnavchaudhur12/StockMarketPrediction/assets/95077985/7e4049fb-4daf-4abc-b358-4bfff9ea7ca2)
+
+
+![image](https://github.com/arnavchaudhur12/StockMarketPrediction/assets/95077985/a0b6f505-ab47-4fd5-a74a-6144247a5d38)
+
+![image](https://github.com/arnavchaudhur12/StockMarketPrediction/assets/95077985/be4a56e8-fa0c-4d98-8c0f-9d0195e59e32)
+
+![image](https://github.com/arnavchaudhur12/StockMarketPrediction/assets/95077985/2a9bc909-cb01-463c-85e5-6def6c4bdc87)
+
+![image](https://github.com/arnavchaudhur12/StockMarketPrediction/assets/95077985/3ee4b4ac-5783-4f04-9ba3-225aed569d3f)
+
+
+
+
+
+
+
+
